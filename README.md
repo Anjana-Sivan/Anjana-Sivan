@@ -13,7 +13,7 @@
 - 📫 How to reach me 
 
   📧 Email: [anjanasivan2606@gmail.com](mailto:anjanasivan2606@gmail.com)  
-  💼 LinkedIn: [linkedin.com/in/Anjana Sivan](https://linkedin.com/in/Anjana Sivan)  
+  💼 LinkedIn: [linkedin.com/in/Anjana Sivan](https://linkedin.com/in/AnjanaSivan)  
 - 😄 Pronouns:
   She/Her
 - ⚡ Fun fact:
